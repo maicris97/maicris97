@@ -1,4 +1,4 @@
-### Seja bem-vindo(a)!
+### Sejam bem-vindos!
 
 Meu nome é Maiara Cristina
 
